@@ -1,1 +1,0 @@
-# repalozhenya_resume
